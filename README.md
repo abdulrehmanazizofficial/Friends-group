@@ -12,3 +12,5 @@ Abdul rehman TU BHI ayegana
 han
 
 abdulrehamn band hai wo aj pata nahi guard bilrhe hain aj koi event nahi hain
+
+Abe paglon phele bataten na ab TU mein hoke bhi agyaa
